@@ -1,0 +1,1 @@
+# linQ-losCovid
